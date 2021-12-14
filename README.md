@@ -30,7 +30,7 @@ I read books on various topics. Some of them:
 - Astrophysics, Quantum Mechanics, Mathematics, 
 - Mystery Thrillers, Fiction
 - Startup, Business strategy, Negotiations, 
-- Philosophy, Self Help
+- Economics and Finance
 
 Head over to <a href="https://www.goodreads.com/user/show/71102958-siddharth-lakhara">GoodReads</a> to know more
 
