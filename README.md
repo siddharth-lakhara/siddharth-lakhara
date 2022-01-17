@@ -32,7 +32,7 @@ I read books on various topics. Some of them:
 - Startup, Business strategy, Negotiations, 
 - Economics and Finance
 
-Head over to <a href="https://www.goodreads.com/user/show/71102958-siddharth-lakhara">GoodReads</a> to know more
+Head over to <a href="https://www.goodreads.com/review/list/71102958-siddharth-lakhara?shelf=read">GoodReads</a> to know more
 
 ## How to reach me 📫
 
